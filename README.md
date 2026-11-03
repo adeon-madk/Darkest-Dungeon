@@ -221,4 +221,4 @@ Darkest Dungeon is available as a **full free version** with all features and up
 **Don't miss out on the chance to experience Darkest Dungeon. Download now and face the darkness!**
 
 ---
-**Last updated:** 2026-11-03 14:58:14 UTC
+**Last updated:** 2026-11-03 20:54:30 UTC
